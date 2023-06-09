@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mark Finkel, 24 years old from Tel-Aviv
+- 👋 Hi, I’m Mark Finkel, 26 years old from Tel-Aviv
 - 👀 I’m interested in proggraming, chess, sports, animals and video games
 - 📫 How to reach me markfinkel6197@gmail.com
 
